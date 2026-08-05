@@ -1,4 +1,4 @@
-  ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=DaaeChristine&color=f8d2d3)
+  ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=DaaeChristine&color=F88CC8)
 
    
 
