@@ -1,4 +1,4 @@
-  ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=DaaeChristine-username&color=f88cc8-&label=♡)
+  ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=DaaeChristine-username&color=f88cc8&label=♡)
 
    
 
