@@ -1,5 +1,5 @@
 <p align="center">  ㅤㅤㅤㅤㅤ
-  -ㅤ![](https://komarev.com/ghpvc/?username=DaaeChristine-username&color=f88cc8&label=♡) hjelp me
+  ㅤ![](https://komarev.com/ghpvc/?username=DaaeChristine-username&color=f88cc8&label=♡) 
 
    
 <p align="center">
