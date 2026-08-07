@@ -1,5 +1,5 @@
 
-  ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=DaaeChristine-username&color=f88cc8&label=♡) <p align="center"> <a href="https://sweetdecoden.straw.page/">Sweet, isn't it?</a> <br>
+  ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=DaaeChristine-username&color=f88cc8&label=♡) hjelp me
 
    
 <p align="center">
