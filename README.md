@@ -3,7 +3,7 @@
 
 <p align="center">
   <a href="https://github.com/daaechristine">
-     <![](https://komarev.com/ghpvc/?username=DaaeChristine-username&color=f88cc8&label=♡)> 
+     <img src="https://komarev.com/ghpvc/?username=DaaeChristine-username&color=f88cc8&label=♡"> 
 <p align="center">
    
 <p align="center">
