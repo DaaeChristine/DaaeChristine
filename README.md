@@ -4,6 +4,7 @@
 <p align="center">
 𓊆♡𓊇
 
+<p align="center">
   hello i am arcee, but u can refer to be however you'd like! (nicknames included!) this is mainly for ponytown purposes! i am a very outgoing person, but i tend to get shy as well! i am either alone or with my partner! it's best if you whisper to int with me since i am offtab a lot or away from my computer in general!! c+h is HEAVILY encouraged! even if i am on dni or with my partner/friends, i love cuddles! BE MY FRIEND!!!! * ^ w ^ / ~
 
 <p align="center">
