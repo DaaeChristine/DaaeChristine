@@ -1,5 +1,5 @@
 <p align="center">
-higuys help me
+<img src="https://64.media.tumblr.com/0b560da51e14666770f97a74a6354759/883d377129da66c8-d3/s2048x3072/856e4b472ef01f194af5c1c7105b8148cee46959.pnj?raw=true" width="400"> <br>
    
    ![](https://komarev.com/ghpvc/?username=DaaeChristine-username&color=f88cc8&label=♡) 
 
