@@ -4,7 +4,7 @@
 𓊆♡𓊇
 
 <p align="center">
-  hello i am arcee, but u can refer to be however you'd like! (nicknames included!) this is mainly for ponytown purposes! i am a very outgoing person, but i tend to get shy as well! i am either alone or with my partner! it's best if you whisper to int with me since i am offtab a lot or away from my computer in general!! c+h is HEAVILY encouraged! even if i am on dni or with my partner/friends, i love cuddles! BE MY FRIEND!!!! * ^ w ^ / ~
+  hᥱᥣ ᥣ ᥆ ι ᥲ꧑ ᥲrᥴᥱᥱ, bᥙt ᥙ ᥴᥲᥒ rᥱfᥱr t᥆ ꧑ᥱ h᥆ᥕᥱ᥎ᥱr ᥡ᥆ᥙ'd ᥣ ιkᥱ! (ᥒιᥴkᥒᥲ꧑ᥱ᥉ ιᥒᥴᥣ ᥙdᥱd!) thι᥉ ι᥉ ꧑ᥲιᥒᥣ ᥡ f᥆r ρ᥆ᥒᥡt᥆ᥕᥒ ρᥙrρ᥆᥉ᥱ᥉! ι ᥲ꧑ ᥲ ᥎ᥱrᥡ ᥆ᥙtg᥆ιᥒg ρᥱr᥉᥆ᥒ, bᥙt ι tᥱᥒd t᥆ gᥱt ᥉hᥡ ᥲ᥉ ᥕᥱᥣ ᥣ ! ι hᥲ᥎ᥱ ᥲ fᥱᥕ tᥡριᥒg qᥙιrk᥉ thᥲt ᥡ᥆ᥙ ꧑ιght ᥉ᥱᥱ! ι ᥲ꧑ ᥱιthᥱr ᥲᥣ ᥆ᥒᥱ ᥆r ᥕιth ꧑ᥡ ρᥲrtᥒᥱr/frιᥱᥒd᥉! ιt'᥉ bᥱ᥉t ιf ᥡ᥆ᥙ ᥕhι᥉ρᥱr t᥆ ιᥒt ᥕιth ꧑ᥱ ᥉ιᥒᥴᥱ ι ᥲ꧑ ᥆fftᥲb ᥲ ᥣ ᥆t ᥆r ᥲᥕᥲᥡ fr᥆꧑ ꧑ᥡ ᥴ᥆꧑ρᥙtᥱr ιᥒ gᥱᥒᥱrᥲᥣ !! ᥴ+h ι᥉ hᥱᥲ᥎ιᥣᥡ ᥱᥒᥴ᥆ᥙrᥲgᥱd! ᥱ᥎ᥱᥒ ιf ι ᥲ꧑ ᥆ᥒ dᥒι ᥆r ᥕιth ꧑ᥡ ρᥲrtᥒᥱr/frιᥱᥒd᥉, ι ᥣ ᥆᥎ᥱ ᥴᥙddᥣ ᥱ᥉! bᥱ ꧑ᥡ f rιᥱᥒd!!!!
 
 <p align="center">
   <a href="https://github.com/daaechristine">
