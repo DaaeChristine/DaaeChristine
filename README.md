@@ -12,7 +12,7 @@
 <p align="center">
    
 <p align="center">
-<img src="https://64.media.tumblr.com/af231a21e7011d2d8edee76bd87a9049/e59910723bc8749a-ee/s1280x1920/c6123d86c29a5fd63165ce34a7d3a7cdced9856d.pnj?raw=true" width="600"> <br>
+<img src="https://64.media.tumblr.com/c61ad633bfacc711040b51b8db0ce97d/efd1e5e575503439-92/s1280x1920/326a3ab8672ac8bcdbd136f90d0a092524ad208f.pnj?raw=true" width="600"> <br>
  
 
 <p align="center">
