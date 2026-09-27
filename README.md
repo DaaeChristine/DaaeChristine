@@ -21,4 +21,5 @@
  
 
 <p align="center">
-ask for my social(s)!
+my IDs
+<img src="[https://64.media.tumblr.com/7f473effe2deb27c07eba141e7314e18/4715acd599264b06-61/s2048x3072/248058910b07d66bb3cac4264f2f93bc4ca5142b.pnj?raw=true" width="600"> <br>
